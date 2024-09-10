@@ -10,6 +10,6 @@ Meu nome é Tayna Pereira
 
 taynapereira165@gmail.com
 
-@taynapereira
+@tayy__09
 
 ![](https://media1.tenor.com/m/XprpuH1iQNkAAAAd/ronaldo.gif)
